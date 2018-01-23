@@ -1,2 +1,2 @@
 # interlinear-bahai-prayers
-https://interlinear-bahai-prayers.neocities.org/
+https://bahai-interlinear-prayers.neocities.org/
